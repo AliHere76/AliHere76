@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Muhammad Ali
+- 👀 I’m interested in a lot of stuff. You can apply the quote "Jack of all and master of none" on me
+- 🌱 I’m currently learning web dev and deep learning
+- 💞️ I’m looking to collaborate on small projects for now. Will be working on the biggies soon
+- 📫 You can connect with me via LinkedIn. Link in bio
+- 😄 Pronouns: HE/HIM & NOTHING ELSE
+- ⚡ Fun fact: Your brain is constantly eating itself.
